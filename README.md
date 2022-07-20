@@ -8,7 +8,7 @@
 - 🏢 Former **Student** at [De Nobil School, F.R.I.](http://www.denobilifri.in/)
 - 🏡Lives in **Dhanbad , India**
 - ⚡ **Fun Facts** : 🍕 🏉 🏏 🎥 🚞
-
+- ⭐ Currently learning **Web Developement**
 <br>
 
 ## Connect with me ☕ :
