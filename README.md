@@ -15,7 +15,7 @@
 
 <br>
 
-[![@aman.modiii](https://img.icons8.com/fluency/48/000000/instagram-new.png "@aman.modiii")](https://www.instagram.com/aman.modiii/) [![@amanmodiii9](https://img.icons8.com/fluency/48/000000/facebook.png "@amanmodiii9")](https://www.facebook.com/amanmodiii9) [![@amanmodiii](https://img.icons8.com/fluency/48/000000/linkedin.png "@amanmodiii")](https://www.linkedin.com/in/amanmodiii/) [![@aman_modii](https://img.icons8.com/fluency/48/000000/twitter-squared.png "@ama_modii")](https://twitter.com/aman_modii) [![@9693226368](https://img.icons8.com/fluency/48/000000/phone-disconnected.png "@9693226368")](tel:9693226368) [![@amanmodi290903@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@amanmodi290903@gmail.com")](amanmodi290903@gmail.com)
+[![@aman.modiii](https://img.icons8.com/fluency/48/000000/instagram-new.png "@aman.modiii")](https://www.instagram.com/aman.modiii/) [![@amanmodiii9](https://img.icons8.com/fluency/48/000000/facebook.png "@amanmodiii9")](https://www.facebook.com/amanmodiii9) [![@amanmodiii](https://img.icons8.com/fluency/48/000000/linkedin.png "@amanmodiii")](https://www.linkedin.com/in/amanmodiii/) [![@aman_modii](https://img.icons8.com/fluency/48/000000/twitter-squared.png "@ama_modii")](https://twitter.com/aman_modii) [![@9693226368](https://img.icons8.com/fluency/48/000000/phone.png "@9693226368")](tel:9693226368) [![@amanmodi290903@gmail.com]([https://img.icons8.com/48/000000/gmail-new.png "@amanmodi290903@gmail.com")](amanmodi290903@gmail.com)
 
 <br>
 
