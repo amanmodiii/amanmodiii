@@ -54,6 +54,8 @@
 
 ---
 
+[![@amanmodiii's Holopin board](https://holopin.me/amanmodiii)](https://holopin.io/@amanmodiii)
+
 Credit: [amanmodiii](https://github.com/amanmodiii)
 
-Last edited on: 22/07/2022
+Last edited on: 24/10/2022
